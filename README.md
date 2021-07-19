@@ -1,1 +1,1 @@
-# rsschool-cv
+https://NataliMali.github.io/rsschool-cv/cv
